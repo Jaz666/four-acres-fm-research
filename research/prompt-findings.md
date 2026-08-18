@@ -1,1 +1,3 @@
 Skill prompt tracing shows global Fish/output guidance appears well after the skill task, context and recent-speech examples. Recent speech can itself contain Fish cues and malformed annotations, creating accidental few-shot reinforcement. Proposed mitigation: local output-safety reminder near generation + sanitised recent-speech context + proxy boundary validation.
+
+as a Skill V2 architectural decision: move output safety from prompt-only control to deterministic post-generation normalisation, and sanitise recent-speech memory before reuse.
