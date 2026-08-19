@@ -1,1 +1,1 @@
-
+future Stheno fine-tuning should retain rejected/bad real-world outputs alongside corrected targets, ideally as preference pairs, with narrowly isolated failure modes and a dataset still dominated by high-quality positive examples.
