@@ -29,3 +29,5 @@ of normal on-air speech.
 - reduced creativity or overly cautious/generic speech
 
 **Status:** Live test in progress.
+
+the 17:15 BST accuracy/adherence scoring instruction did not materially eliminate Fish/meta markup or unsupported factual invention. Failures continued the same evening and reappeared immediately after an approximately four-hour off-air gap, showing malformed recent-speech context is an amplifier rather than the sole cause.
