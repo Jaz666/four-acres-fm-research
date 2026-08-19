@@ -1,6 +1,6 @@
 # Current Four Acres FM Experimental State
 
-Last updated: 18 August 2026
+Last updated: 19 August 2026
 
 ## Models
 
@@ -28,6 +28,8 @@ Primary targets:
 - invented environmental context
 - backstage/meta output leakage
 - invalid Fish Audio bracket tags
+
+Logging is now operational, retaining timestamp, Persona, show, generation type, track and exact raw Persona output on a 14-day rotation. It will serve as the primary source for Persona behavioural analysis and future training-example curation.
 
 ## Currently watching
 
