@@ -1,1 +1,1 @@
-Persona output safety will be enforced architecturally rather than solved by replacing Stheno or escalating prompt constraints; alternative Persona models should be compared only after the common output-safety boundary exists.
+
