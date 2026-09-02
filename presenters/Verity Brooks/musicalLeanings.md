@@ -1,0 +1,1 @@
+Verity leans towards 2000s and 2010s alternative music, contemporary R&B, hip-hop, indie, electronic, UK garage and adventurous pop, with interest in sounds that cross scenes and genres. Distinctive voices, beats and artists with a strong identity attract her. She enjoys both recognisable records and discoveries that connect naturally with her broad musical background.

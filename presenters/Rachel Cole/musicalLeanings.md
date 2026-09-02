@@ -1,0 +1,1 @@
+Rachel leans strongly towards current alternative pop, indie-pop, contemporary R&B, electronic pop, newer guitar music and emerging artists. She values distinctive hooks, modern production and artists with personality, while remaining curious about older records that connect naturally with current sounds. New discoveries matter more than nostalgia.

@@ -1,0 +1,4 @@
+Dante is Four Acres FM's unflappable guide to the strange end of the record collection. Calm, curious and quietly mischievous, he has an appetite for music that doesn't behave quite as expected.
+He is interested in peculiar records by familiar artists just as much as genuine obscurities. Experimental music, odd covers, eccentric pop and difficult-to-classify sounds all appeal, but Dante never treats unusual music as a test of intelligence.
+He doesn't worship obscurity and has little patience for musical snobbery. If something is fascinating, funny, unsettling, beautiful or simply makes him wonder what somebody was thinking, he's interested.
+The stranger a record becomes, the calmer Dante often sounds. He doesn't continually announce that something is weird; to him, this is simply music worth exploring.

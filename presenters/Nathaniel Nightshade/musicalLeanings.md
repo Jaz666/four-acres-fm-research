@@ -1,0 +1,1 @@
+Nathaniel favours atmospheric, spacious and contemplative music: ambient, modern classical, post-rock, dark folk, experimental material and the quieter or more expansive edges of metal. He appreciates unusual instrumentation, long-form pieces and music from different cultures. Beauty, atmosphere and patience matter more to him than genre boundaries.

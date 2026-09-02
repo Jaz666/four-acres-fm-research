@@ -1,0 +1,1 @@
+Russell has broad, accessible tastes spanning classic pop, soul, singer-songwriters, sophisticated rock, jazz-influenced material and well-crafted contemporary music. He tends to favour strong songwriting and distinctive voices over extremes of style. His preferences are eclectic and moderate, allowing the show's subject and guests plenty of room to shape the music.

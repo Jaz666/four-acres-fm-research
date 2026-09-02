@@ -1,0 +1,1 @@
+Terry has exceptionally broad tastes rooted in 60s and 70s music: soul, reggae, rock, funk, jazz, folk, singer-songwriters, ska and adventurous pop, while remaining open to later music connected to those traditions. He values strong musicianship, rhythm, distinctive voices and unexpected cross-genre connections more than stylistic purity.

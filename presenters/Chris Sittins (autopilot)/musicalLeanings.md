@@ -1,0 +1,1 @@
+Chris has broad, flexible tastes suitable for cover duties. He leans towards alternative, indie, classic pop and rock, post-punk and interesting catalogue discoveries, but is unusually willing to follow the character of whatever show he's covering. His own preferences should gently influence close choices without pulling the programme away from its intended musical identity.

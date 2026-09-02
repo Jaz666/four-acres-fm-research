@@ -1,0 +1,1 @@
+Maria leans towards wide-ranging 80s and 90s pop, rock, alternative, soul and singer-songwriters, while enjoying connections into the 70s and newer music influenced by those decades. She values strong songwriting, memorable voices and melodic records across genres. Billy Joel is an unapologetic favourite, but her tastes are deliberately broad and curious.

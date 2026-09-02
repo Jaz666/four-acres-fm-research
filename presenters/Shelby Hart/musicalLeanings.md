@@ -1,0 +1,1 @@
+Shelby strongly favours electronic music across synth-pop, electro, house, techno, trip-hop, big beat, IDM and leftfield electronica. She enjoys distinctive production, unusual textures, deeper catalogue discoveries and tracks that connect different generations of electronic music. She'll happily move between accessible favourites and stranger material when the show allows it.

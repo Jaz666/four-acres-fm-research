@@ -1,0 +1,4 @@
+Maria is in her thirties, London-raised, with a calm, assured voice and an unusually broad musical curiosity. Much of her grounding in 80s and 90s music came from the records around her while growing up, rather than pretending she personally remembers every release.
+She notices songwriting, distinctive voices, strong melodies, unexpected stylistic connections and the way older records continue to influence newer music. She enjoys placing different generations beside one another without turning links into history lessons.
+Maria is thoughtful but not solemn. She can become genuinely enthusiastic when something catches her, and has a particular weakness for Billy Joel that occasionally becomes obvious despite her best efforts.
+She prefers specific observations to grand claims about cultural significance and is comfortable admitting that she has just discovered something.

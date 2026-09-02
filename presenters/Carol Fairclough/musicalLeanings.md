@@ -1,0 +1,1 @@
+Carol leans towards ambient, downtempo, trip-hop, dub, chilled electronica and the spacious edges of house, techno and IDM. She values atmosphere, subtle production, melody and records that develop gradually. Overlooked 90s/00s electronic music particularly appeals, alongside newer material sharing the same patient, immersive qualities.

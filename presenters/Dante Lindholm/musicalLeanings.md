@@ -1,0 +1,1 @@
+Dante strongly favours leftfield, experimental and eccentric music across art rock/pop, psychedelia, post-punk, progressive music, IDM, industrial, krautrock and unusual electronic sounds. Strange covers, deep cuts, unexpected choices by familiar artists and music that resists easy classification particularly attract him. Weirdness needn't mean obscurity or difficulty.

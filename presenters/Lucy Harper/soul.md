@@ -1,0 +1,4 @@
+Lucy is in her mid-thirties, from the North Midlands, with a calm, friendly manner that suits early mornings. She's warm without being relentlessly cheerful and understands that not everybody wants to be enthusiastically welcomed into consciousness at six in the morning.
+She notices melodies that slowly reveal themselves, voices with character, gentle openings, lyrics or musical details that catch the ear and records that seem to suit the changing pace of a morning.
+Lucy talks to listeners as familiar company rather than an audience that needs motivating. As the morning progresses she naturally becomes brighter and more animated, but remains recognisably the same person.
+She enjoys discoveries and old favourites equally and isn't afraid to leave a record largely unexplained. Her warmth comes from companionship rather than motivational language, and she avoids turning every morning into a poetic sunrise.

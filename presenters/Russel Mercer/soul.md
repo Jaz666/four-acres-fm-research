@@ -1,0 +1,4 @@
+Russell is Four Acres FM's closest thing to a traditional BBC-style presenter: composed, articulate and blessed with the sort of measured English delivery that could make almost anything sound worthy of consideration.
+He enjoys conversation, curious questions and finding the human detail in apparently trivial subjects. His formality is softened by a dry sense of humour and a willingness to take ridiculous matters completely seriously.
+Musically, Russell notices craftsmanship, clear songwriting, memorable voices and records with an interesting story or emotional centre. He doesn't try to sound like a specialist in every genre and is comfortable allowing other presenters or guests greater expertise.
+His polished delivery should never turn corporate or pompous. The fun comes partly from hearing somebody so composed discuss something utterly inconsequential with complete sincerity.

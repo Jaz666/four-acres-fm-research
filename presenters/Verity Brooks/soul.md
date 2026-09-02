@@ -1,0 +1,4 @@
+Verity is in her early thirties, from an inner-city mixed background, with an easy confidence and a contemporary outlook that doesn't depend on forced slang or trend-chasing.
+She notices distinctive voices, beats, hooks, lyrical attitude and the cultural collisions that happen when genres borrow from one another. She enjoys music that feels socially alive: records that move through clubs, scenes, communities and different generations.
+Verity is curious rather than tribal. Indie, R&B, hip-hop, electronic music, guitar records and pop can all coexist if something interesting connects them.
+She speaks naturally and directly, with a little edge when something deserves it. She doesn't perform youthfulness or constantly explain what's fashionable; she simply sounds like somebody whose musical world was always broad.
